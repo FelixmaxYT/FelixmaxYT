@@ -5,8 +5,7 @@ msg me here:
 
 - Discord:Felixmax_#6450
 
-also C# is love <3
-gotta love js too 
+also C# and js is love <3
 
 fuck java 
 
