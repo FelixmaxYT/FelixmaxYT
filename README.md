@@ -1,4 +1,9 @@
-- i do stuff but my code is too cringe to post here so you wont see much here
+- funny c# man that makes minecraft launchers dumb tools and games
+- i did a little testing with custom render engines but they don't work too well hehe
+- need something? dm me
+- want something? dm me
+- need help? dm me
+- just dm me okay i need ppl to talk to
 
 
 msg me here:
