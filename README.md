@@ -16,6 +16,9 @@ fuck java
 
 staff at @Glacier-Client 
 
+launcher Developer @ Vanity Digital
+(the ppl behind ranked bedwars)
+
 ducks are cool 
 <img alt="this a really cool duck if i have ever seen one (i haven't i don't leave the house)" src="https://www.kuriose-feiertage.de/wp-content/uploads/2014/02/LameDuckFacebook.jpg">
 
