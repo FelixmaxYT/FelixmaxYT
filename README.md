@@ -1,5 +1,5 @@
-- funny c# man that makes minecraft launchers dumb tools and games
-- i did a little testing with custom render engines but they don't work too well hehe
+- funny c# man that makes minecraft launchers, dumb tools and games
+- amongus seks
 - need something? dm me
 - want something? dm me
 - need help? dm me
