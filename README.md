@@ -8,7 +8,7 @@
 
 msg me here:
 
-- Discord: ~~Felixmax_#6450~~ got fucking banned Moneyinmyowl#6450
+- Discord:Felixmax_#6450
 
 also C# and js is love <3
 
