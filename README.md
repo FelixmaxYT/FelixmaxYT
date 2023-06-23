@@ -8,7 +8,7 @@
 
 msg me here:
 
-- Discord:Felixmax_#6450
+- Discord:~~Felixmax_#6450~~ notfelixmax_ (account number 3, working on getting that name back)
 
 also C# and js is love <3
 
