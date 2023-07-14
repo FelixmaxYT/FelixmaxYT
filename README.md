@@ -8,18 +8,14 @@
 
 msg me here:
 
-- Discord:~~Felixmax_#6450~~ notfelixmax_ (account number 3, working on getting that name back)
+- Discord:~~Felixmax_#6450~~ notfelixmax_ (~~account number 3, working on getting that name back~~ not getting that back)
 
 also C# and js is love <3
 
 fuck java 
 
-staff at @Glacier-Client 
-
-launcher Developer @ Vanity Digital
-(the ppl behind ranked bedwars)
 
 ducks are cool 
 <img alt="this a really cool duck if i have ever seen one (i haven't i don't leave the house)" src="https://www.kuriose-feiertage.de/wp-content/uploads/2014/02/LameDuckFacebook.jpg">
 
-[![dipshitcord](https://discord.c99.nl/widget/theme-3/824728027010170962.png)](https://discord.com/users/824728027010170962)
+                    
