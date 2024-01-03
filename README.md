@@ -1,5 +1,4 @@
-- funny c# man that makes minecraft launchers, dumb tools and games
-- amongus seks
+i do the funny hitting keys on keyboard 
 - need something? dm me
 - want something? dm me
 - need help? dm me
@@ -8,11 +7,10 @@
 
 msg me here:
 
-- Discord:~~Felixmax_#6450~~ notfelixmax_ (~~account number 3, working on getting that name back~~ not getting that back)
+- Discord: notfelixmax_ 
 
-also C# and js is love <3
-
-fuck java 
+ C# and js is love <3
+ i dont like java 
 
 
 ducks are cool 
